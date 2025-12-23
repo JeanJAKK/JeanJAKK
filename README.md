@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Jean KPETSI(JeanJAKK)
+# 👋 Hi, I'm Jean KPETSI (JeanJAKK)
 
 🎓 **Étudiant en Licence – Informatique - Génie logiciel**  
 💻 **Computer Science & Robotics Enthusiast**  
