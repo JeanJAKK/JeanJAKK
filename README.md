@@ -6,7 +6,6 @@
 * 🤖 **Intéressé par le développement logiciel, l’IA et les systèmes intelligents**
   
 ---
----
 
 ## 🚀 About Me
 
